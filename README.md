@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **ahmedamin.ce@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1bbosa-OCLwmE7orHU4tCkJwiKY_v-38I/view?usp=drive_link
+- 📄 Know about my experiences from my [Resume]([url](https://drive.google.com/file/d/1bbosa-OCLwmE7orHU4tCkJwiKY_v-38I/view?usp=drive_link)) 
 
 - ⚡ Cool fact **My previous work and experiences have significantly strengthened my communication skills, active listening, strategic thinking, and ability to collaborate efficiently in diverse, multicultural environments.**
 
